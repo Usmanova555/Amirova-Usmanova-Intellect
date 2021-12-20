@@ -1,0 +1,1 @@
+# Amirova-Usmanova-Intellect
